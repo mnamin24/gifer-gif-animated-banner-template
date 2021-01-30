@@ -1,0 +1,1 @@
+# gifer-gif-animated-banner-template
